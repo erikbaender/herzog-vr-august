@@ -11,7 +11,7 @@ https://youtu.be/jMCotvoyD4k
 
 Coding da Vinci Projektseite:
 
-https://codingdavinci.de/de/projekte/herzog-vr-august
+https://web.archive.org/web/20210129165846/https://codingdavinci.de/de/projekte/herzog-vr-august
 
 Herzog August Bibliothek:
 
